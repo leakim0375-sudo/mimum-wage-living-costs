@@ -1,1 +1,1 @@
-# mimum-wage-living-costs
+#change-of-Minimum-Wage-and-cost-of-living
