@@ -1,0 +1,1 @@
+# mimum-wage-living-costs
